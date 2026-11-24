@@ -1,6 +1,4 @@
-# 💫 About Me:
-
-## Hi there! 👋 I'm Ela
+# Hi there! 👋 I'm Ela 💫
 
 🧪 Medical Laboratory Scientist | 💻 Developer | 🌱 Lifelong Learner
 
